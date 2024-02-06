@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Buddy Holly
 - 👀 I’m interested in Buddy Holly
-- 🌱 I’m currently learning Buddt Holly
+- 🌱 I’m currently learning Buddy Holly
 - 💞️ I’m looking to collaborate on Buddy Holly
 - 📫 How to reach me Buddy Holly
 - 😄 Pronouns: Buddy/Holly
